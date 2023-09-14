@@ -1,1 +1,1 @@
-My name is Aaditya Newaskar. This is just a storage for my codes. Thank you.
+My name is Aaditya Newaskar. This is a storage for my programs. All private. Thank you.
